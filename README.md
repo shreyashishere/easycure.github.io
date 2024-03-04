@@ -1,0 +1,1 @@
+# easycure.github.io
